@@ -1,0 +1,1 @@
+This Christmas🎄we'll be 6 feet👣apart and the very next day🌞covid🦠will go away This👇year🗓️ set aside all your fears😱 and let's make Christmas🎄feel special Who🧐infected people? I kept my distance but you still catch and die⚰️ Tell me baby👶, do you recognise🧐 me? Well I'm in a mask😷 so it wouldn't surprise😲 me
