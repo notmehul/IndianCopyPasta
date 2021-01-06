@@ -1,0 +1,1 @@
+dosto 😧 agar ✊ aapko 😸 ye 🧑‍🦱 wala 👻 post 🙁 achha 😸 lage 🤜 to 😀 please 🙁 apne 😚 stories 👀 pe 👐 share 👹 kar 👿 dena 😸 mujhe 👋 bohot 😂 achha 👧 lagta 🙂 hai 🤫 jab 🧒 aap 🖖 mere 🙄 posts 😵 apne 😔 stories 😵 pe 🤖 share 🤩 karte 💀 hai 😏 1 :skull_crossbones: share 😣 = 👅 1 👩‍🦰 pappi 🥶
